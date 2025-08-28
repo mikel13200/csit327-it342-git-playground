@@ -14,3 +14,4 @@
 - Lo, Joshua Noel (**juswangs12**)
 - Oswa, Yusuf Bin Mohammad Ali (**@YBMACO**)
 - Dadula, Michael Vincent (**@mikel13200**)
+- Jumawan, Clyde Nixon (**@klaydgg12**)
